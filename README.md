@@ -2,7 +2,7 @@
 - 👀 I’m interested in Full stack development,Cyber security,Data science,AI/ML
 - 🌱 I’m currently learning app development
 - 💞️ I’m looking to collaborate on AI/ML projects
-- 📫 you can reach out to me at my email id arnavyadav007@gmail.com
+- 📫 you can reach out to me at my email id arnavyadav0047@gmail.com
 - 😄 Pronouns: He
   
 
